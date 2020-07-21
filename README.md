@@ -1,4 +1,4 @@
-<img src="/Users/alvin/Downloads/image/🐺徽章.jpg" alt="🐺徽章" style="zoom:80%;" />
+<img src="http://o88m.cn/storage/Image/dhahdambd.jpg" alt="" style="zoom:80%;" />
 
 
 
@@ -6,6 +6,7 @@
 
 - Living in  **ZheJiang**
 - Working in **嘉兴裂变**
+- 资深猎魔人 浪学派 昆特牌赌狗
 
 
 

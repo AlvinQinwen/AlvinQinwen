@@ -6,7 +6,7 @@
 
 - Living in  **ZheJiang**
 - Working in **嘉兴裂变**
-- 一个肚子摸着石头过河的学者
+- 一个独自摸着石头过河的学者
 
 
 
